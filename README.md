@@ -1,1 +1,1 @@
-### 📱 iOS Developer
+### iOS Developer
