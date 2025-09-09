@@ -1,1 +1,1 @@
-### 📱 iOS Developer in *Kaspersky Lab*
+### 📱 iOS Developer
